@@ -27,6 +27,4 @@
 - 💼 Upwork: [https://www.upwork.com/freelancers/~01929fa036ecbb05e7?mp_source=share]  
 - 📧 Email: [emmydzngfx@gmail.com]  
 
----“Dreams become empires when tech meets creativity.”
-
 ⭐️ *“Dreams become empires when tech meets creativity.”*
